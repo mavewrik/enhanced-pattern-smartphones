@@ -1,0 +1,1 @@
+# enhanced-pattern-smartphones
